@@ -1,2 +1,1 @@
-# baller
-fuck you
+go kill yourself
